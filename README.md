@@ -1,1 +1,1 @@
-# StrategiXperts-StrategiXpertsing-website-EN-MP-I
+[DEMO](https://panasiuknazar.github.io/StrategiXperts-consulting-website-EN-MP-I/)
