@@ -1,1 +1,1 @@
-# StrategiXperts-consulting-website-EN-MP-I
+# StrategiXperts-StrategiXpertsing-website-EN-MP-I
